@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-![](https://tenor.com/pt-BR/view/benjamin-netanyahu-gif-15433753785662778099)
+![]([https://tenor.com/pt-BR/view/benjamin-netanyahu-gif-15433753785662778099](https://tenor.com/pt-BR/view/benjamin-netanyahu-like-facebook-prime-gif-4061585))
 
 <!--
 **augusto-m-r/augusto-m-r** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
