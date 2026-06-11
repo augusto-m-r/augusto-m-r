@@ -1,5 +1,6 @@
 ## Hi there 👋
 
+![](https://upload.wikimedia.org/wikipedia/commons/d/d4/George-W-Bush.jpeg)
 ![](https://media1.tenor.com/m/1i-1S-lFKvMAAAAC/benjamin-netanyahu.gif)
 
 <!--
